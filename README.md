@@ -13,7 +13,7 @@
 
 - ⚡ Fun fact **5 seasons League of Legends Master**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: adaojun99@gmail.com</h3>
 <p align="left">
 </p>
 
